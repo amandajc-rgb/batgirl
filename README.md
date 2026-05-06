@@ -1,2 +1,0 @@
-# batgirl
-trabalho escolar
